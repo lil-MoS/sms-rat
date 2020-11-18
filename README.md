@@ -13,4 +13,4 @@
 </code>
 [اطلاعات بیشتر](https:/t.me/lil_mos)
 
-Donate : https://idpay.ir/lilmos
+
